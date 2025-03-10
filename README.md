@@ -1,4 +1,5 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=smuppet&abbreviated=true&label=⠀☆⠀cupcakes⠀&color=FF4188)
+
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀" i WANT TO CUT YOU OPEN , SEE YOUR COLORS RUN ! "
 
