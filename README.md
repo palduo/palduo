@@ -6,7 +6,9 @@
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=catboykenma&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=85A100&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=catboykenma&redirect=true)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://www.last.fm/user/ectosBiologist"><img src="https://lastfm-recently-played.vercel.app/api?user=ectosBiologist" height="auto" width="350px"/></a>
+
+
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　⠀⠀" i WANT TO PLAY i WANT TO HAVE A FRIEND TO HAVE SOME FUN ! "
 
