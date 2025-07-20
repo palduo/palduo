@@ -6,7 +6,7 @@
 
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://www.last.fm/user/ectosBiologist"><img src="https://lastfm-recently-played.vercel.app/api?user=ectosBiologist" height="auto" width="350px"/></a>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://www.last.fm/user/ectosBiologist"><img src="https://lastfm-recently-played.vercel.app/api?user=ectosBiologist" height="250" width="400px"/></a>
 
 
 
